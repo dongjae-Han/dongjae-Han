@@ -1,2 +1,2 @@
 # Physics student 
-assignments and some works will be posted....very very soon.
+Assignments and some works will be posted....very very soon.
